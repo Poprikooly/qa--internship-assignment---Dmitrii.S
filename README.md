@@ -1,0 +1,1 @@
+# qa--internship-assignment---Dmitrii.S
